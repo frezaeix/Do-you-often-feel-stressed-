@@ -5,7 +5,7 @@ I often feel stressed about achieving my goals in life, and I sometimes struggle
 
 So, I decided to gather some information about why this might happen and how to better deal with this kind of stress.
 
-The information below is based on my conversation with ChatGPT and is mainly intended for sharing my personal experience and what I found helpful.
+### The information below is based on my conversation with ChatGPT and is mainly intended for sharing my personal experience and what I found helpful.
 
 ## Please note: If you are experiencing serious or persistent problems, please contact a qualified healthcare professional.
 
